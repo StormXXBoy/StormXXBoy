@@ -1,1 +1,1 @@
-[https://stormxxboy.com](stormxxboy.com)
+[stormxxboy.com](https://stormxxboy.com)
